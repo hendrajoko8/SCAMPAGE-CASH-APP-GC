@@ -6,7 +6,7 @@ _MY CONTACT <a href="https://wa.me/+380675877299/">WHATSAPP</a>_
 _| <a href="https://www.facebook.com/usdsmellyy">FACEBOOK</a>_
 _| <a href="https://web.telegram.org/k/#@usdsmellyy">TELEGRAM</a>_
 
-CEK FOR FULL VIDEO : ## https://www.facebook.com/share/p/YoZKSQZLaD3wbUZr/
+CEK FOR FULL VIDEO : https://www.facebook.com/share/p/YoZKSQZLaD3wbUZr/
 ---
 
 <h2>SCAMPAGE PRIVATE PAID - GCLOUD 👾 </h2>
